@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @FastDropGaming
+- 👀 I’m interested in programming, photography and video editing
+- 🌱 I’m currently learning Photography, css
+- 📫 How to reach me solo.to/fastdropg
